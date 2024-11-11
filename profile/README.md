@@ -27,24 +27,41 @@ The [Sumatra Slim Belly Tonic](https://www.facebook.com/Sumatra.Slim.Belly.Tonic
 ## What is the price of Sumatra Slim Belly Tonic?
 
 **1 Bottle**
+
 •	Supply: 30 Day Supply
+
 •	Price: $59 per bottle
+
 •	Total Cost: $59 (Discounted from $297)
 
+
 **3 Bottles**
+
 •	Supply: 90 Day Supply
+
 •	Price: $49 per bottle
+
 •	Total Cost: $147 (Discounted from $891)
+
 •	Additional Benefits:
+
 •	2 Free Bonus Books
 
+
 **6 Bottles**
+
 •	Supply: 180 Day Supply
+
 •	Price: $39 per bottle
+
 •	Total Cost: $234 (Discounted from $1782)
+
 •	Additional Benefits:
+
 •	2 Free Bonus Books
+
 •	Free US Shipping
+
 
 
 ## Where to buy Sumatra Slim Belly Tonic?
